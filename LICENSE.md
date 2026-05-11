@@ -1,4 +1,4 @@
-
+iStat Menus for macOS instant Automation - junk-removal and automated-tasks is the best iStat Menus for macOS automation, featuring junk-removal and automated-tasks. Safe,
 
 
 
